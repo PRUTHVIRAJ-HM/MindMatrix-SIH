@@ -1,1 +1,1 @@
-# MindMatrix-SIH
+# Pruthvi's Repo
